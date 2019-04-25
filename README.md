@@ -1,0 +1,2 @@
+# Safe
+privacy policy
